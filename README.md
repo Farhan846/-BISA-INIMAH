@@ -1,2 +1,2 @@
-# -BISA-INIMAH
-INIMAHBELAJAR YA
+# Terus belajar ya
+gassinnn
